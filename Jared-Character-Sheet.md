@@ -32,6 +32,10 @@ XP: 1300
 
 Stamina: 6
 
+EAC: 11
+
+KAC: 11
+
 **Resolve:** 4
 
 # Theme
