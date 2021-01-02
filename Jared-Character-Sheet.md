@@ -131,7 +131,7 @@ Healing Touch
 
 ## 2nd
 
-Channel Skill +1 (Percetion + Piloting)
+Channel Skill +1 (Perception + Piloting)
 
 Mindlink
 
