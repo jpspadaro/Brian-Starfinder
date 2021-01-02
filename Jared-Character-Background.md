@@ -1,13 +1,15 @@
 # Jared Background
 
 ## Basic History
-- 
+- Worked in comet mining operation (communications).
 
-- Used to be member of worshippers of the Maw.
+- Joined maw shortly after liberation.
 
--  
+- Left and started creating a new identity after ideological difference.
 
--  
+- Started persuing mystical background.
+
+- Passed as an academic.
 
 -  
 
