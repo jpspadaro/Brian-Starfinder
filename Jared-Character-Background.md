@@ -11,19 +11,10 @@
 
 - Passed as an academic.
 
--  
+- Intermittent spiritual journeys to the void.
 
--  
+- Contacted by Horizon Star for interdimensionl portal research.
 
-## Formative Mystic Events
+- Asteroid and portal discovery with Gina.
+
 - 
-
--
-
-
-
-## Academic Background
--
-
--
-
